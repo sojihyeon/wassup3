@@ -10,9 +10,8 @@
 
 #####  🖐 Nice to meet you !
 
-I'm jihyeon so.
-(If you want to be friendly, call me Hyeon.)   
-Until recently, I worked as a designer at a company,   
+I'm jihyeon so.   
+Until recently, I worked as a designer at a AI Solution company,   
 I am currently taking the ETS Wassup AI PM class.  
 
 <br/>
