@@ -8,7 +8,7 @@
 
 I'm jihyeon so.
 (If you want to be friendly, call me Hyeon.)   
-Until recently, I worked as a designer at a company, but I quit.   
+Until recently, I worked as a designer at a company,   
 I am currently taking the ETS Wassup AI PM class.  
 
 <br/>
