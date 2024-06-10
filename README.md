@@ -3,11 +3,11 @@
 <img src="https://media.tenor.com/4GtNq6vuPacAAAAM/patrick-star.gif" width="200"/>    
 
 ### About Jihyeon
+
+## 
+
 <br/>
 
-##
-
-<br/>
 #####  🖐 Nice to meet you !
 
 I'm jihyeon so.
