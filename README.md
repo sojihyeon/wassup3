@@ -50,7 +50,7 @@ I am currently taking the ETS Wassup AI PM class.
 
 
 E-mail address : locial579@gmail.com
-
+Phone number : 010.4163.1599
 
 
 
