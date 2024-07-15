@@ -12,7 +12,7 @@
 
 I'm jihyeon so.   
 Until recently, I worked as a designer at a AI Solution company,   
-I am currently taking the ETS Wassup AI PM class.  
+Taking the ETS Wassup AI PM class currently
 
 <br/>
 
