@@ -17,7 +17,6 @@ Taking the ETS Wassup AI PM class currently
 <br/>
 
 - &emsp; MBTI : INTJ / eNTJ <br/>
-- &emsp; Birth : February 22, 2000<br/>
 - &emsp; Hobby : Exercising, cooking, visiting exhibitions
 
 </p>
@@ -49,7 +48,7 @@ Taking the ETS Wassup AI PM class currently
 
 
 
-E-mail address : locial579@gmail.com
+E-mail address : micmic2000222@outlook.com   
 Phone number : 010.4163.1599
 
 
